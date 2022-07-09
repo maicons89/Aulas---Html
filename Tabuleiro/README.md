@@ -6,4 +6,4 @@
 
 *Durante a aula do professor Sidney, fizemos um tabuleiro.*  
 
-**Qualquer dúvida, estou à di sposição no seguinte e-mail: maicon.santos89@hotmail.com**
+**Qualquer dúvida, estou à disposição no seguinte e-mail: maicon.santos89@hotmail.com**
